@@ -29,5 +29,4 @@
 
 ![image](https://github.com/user-attachments/assets/8962658e-faac-4f25-bac3-1be7de983efc)
 
-
-Ainda não teve professor que testou o quiz
+Ainda não teve feedback de um professor da Escola
