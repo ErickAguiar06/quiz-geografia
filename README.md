@@ -27,7 +27,7 @@
 
 ![image](https://github.com/user-attachments/assets/32938b6f-02e7-44b3-9a03-006011fa02ab)
 
-![image](https://github.com/user-attachments/assets/9649617d-059b-4bfb-a214-0304f15c5efd)
+![image](https://github.com/user-attachments/assets/8962658e-faac-4f25-bac3-1be7de983efc)
 
 
 Ainda não teve professor que testou o quiz
